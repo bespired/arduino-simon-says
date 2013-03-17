@@ -5,4 +5,4 @@ arduino-simon-says
 
 http://instagram.com/p/W8CrEzL8Ok/
 
-http://i45.tinypic.com/11vrxvc.png
+http://imgur.com/jPn9Nna
